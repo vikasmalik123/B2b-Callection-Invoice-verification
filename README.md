@@ -1,0 +1,2 @@
+# B2b-Callection-Invoice-verification
+We have been providing outstanding services in Debt Recovery, B2B Collections, Invoice Verifications, AR Management, Credit Insurance, Credit Policies Restructuring, and Credit Control solutions to our clients. Our clients include businesses from all areas, which are from startups to larger corporates, Govt. and Non-Govt. Organizations, Banks, MSMEs, Insolvency Practitioners, Freight &amp; Forwarding, Finance &amp; Insurance providers worldwide.
